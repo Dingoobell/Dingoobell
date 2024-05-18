@@ -1,5 +1,5 @@
 
 
-Eu me chamo isabelle manosses
+Eu me chamo isabelle.
 
 🔭💌💞💋
